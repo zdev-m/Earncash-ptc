@@ -1,1 +1,0 @@
-# Earncash-ptc
